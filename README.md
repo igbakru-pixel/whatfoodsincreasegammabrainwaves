@@ -1,3 +1,4 @@
+#whatfoodsincreasegammabrainwaves
 <h1><strong>What Foods Increase Gamma Brain Waves?</strong></h1>
 <p><span style="font-weight: 400;">No food has been proven to raise gamma brain waves in a way you can feel.&nbsp;</span></p>
 <p><span style="font-weight: 400;">The closest lead is a 2017 study, described by Healthline, that linked eating certain nuts, notably pistachios, to a greater gamma response, and the article says more research is needed.&nbsp;</span></p>
